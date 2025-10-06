@@ -1,2 +1,2 @@
 # Plan-ucenja
-Moj li;ni plan ucenja po mesecima
+Moj licni plan ucenja po mesecima
